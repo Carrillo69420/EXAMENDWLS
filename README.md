@@ -1,0 +1,1 @@
+Me gustaria que el primer/segundo parcial practico no fuera asi de complejo maestra :'), tenga mas tacto porfavorsito
